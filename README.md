@@ -1,5 +1,3 @@
-love Raphtalia, love ETH, simple as. Solidity is pretty dope. 
-
 Former physics PhD student but academia wasn't it. Dms always open to learn or contribute to cool stuff.
 
 https://twitter.com/0xJimmyJ
