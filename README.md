@@ -1,6 +1,6 @@
 Former physics PhD student, switched to focus on Web3/DeFi August 2022 and haven't looked back.
 
-Discord: 0xJimmyJ#7252
+https://twitter.com/0xJimmyJ
 
 <!---
 theJimmyJ/theJimmyJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
