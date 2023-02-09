@@ -1,6 +1,5 @@
-Former physics PhD student, switched to focus on Web3/DeFi August 2022 and haven't looked back.
-
-https://twitter.com/0xJimmyJ
+M.S. Physics 2022 Stevens Institute of Technology
+B.S. Physics 2021 Rensselaer Polyechnic Institute
 
 <!---
 theJimmyJ/theJimmyJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
